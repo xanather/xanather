@@ -1,4 +1,4 @@
-## I like programming, scuba diving 🤿 and bouldering 🧗.
+## I play with Bitcoin ₿, enjoy scuba diving 🤿 and bouldering 🧗.
 
 ## Low-level programming since 2009 🌐.
 
