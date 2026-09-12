@@ -2,7 +2,7 @@ I play with Bitcoin ₿, find economics fascinating, and enjoy scuba diving 🤿
 
 Low-level programming since 2009 🌐.
 
-Impromptu PhD in cybersecurity 🕵.
+Impromptu PhD in cybersecurity 🔒.
 
 Trying to build a company 🏢! Tough work 🦈!
 
