@@ -8,4 +8,4 @@ Building a company 🏢! Tough work 🦈!
 
 Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities, and respect the custodians of the land!
 
-Relevant meme: https://i.imgflip.com/b29pbc.jpg
+:)
