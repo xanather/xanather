@@ -6,4 +6,6 @@ Impromptu PhD in cybersecurity 🔒.
 
 Building a company 🏢! Tough work 🦈!
 
-Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities, and respect the custodians of the land!
+Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities, and respect the custodians, values and laws of the land!
+
+# 🪷
