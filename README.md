@@ -8,4 +8,8 @@ Building a company 🏢! Tough work 🦈!
 
 Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities, and respect the custodians, values and laws of the land!
 
+Why do such burdens fall on the person that just want to build?
+
+Public notice 2026-10-05 on my GitHub which is my most active 'social media': I am not suicidal while I do what has to be done as an upstanding citizen for the safety of myself, those around me and my company. For my stalkers reading this; now is the time to stop.
+
 # 🪷🪷
