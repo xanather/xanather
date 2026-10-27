@@ -7,3 +7,5 @@ Impromptu PhD in cybersecurity 🔒.
 Building a company 🏢! Tough work 🦈!
 
 Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities, and respect the custodians, values and laws of the land!
+
+`How does one retroactively patch a big four database that has corruption with a sprinkle of identity fraud smeared all over it? 🔻🫪`
