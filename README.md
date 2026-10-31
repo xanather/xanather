@@ -10,8 +10,8 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 ------------
 
-`How does one retroactively patch a big four database that has corruption with a sprinkle of identity fraud smeared all over it? 🔻🫪`
+Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪/10.
 
-https://www.youtube.com/watch?v=s85iFQakA-U
+Today's damage seeking compensation index: $12,500,000
 
-Today's stupidity index out of 10 (updated live): 🫪/10
+AMP was a honeypot fellas go spend time with family on Halloween or something morons, its over. For anyone else trapped I'm trying as fast as I can.
