@@ -14,7 +14,7 @@ Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪�
 
 Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
 
-Today's damage seeking compensation index: $16,900,000 (no I will not be accepting hush money or signing an NDA).
+Today's damage seeking compensation index: $17,000,000 (no I will not be accepting hush money or signing an NDA).
 
 50% of above will go to other victims that reach out if/when they feel safe.
 
