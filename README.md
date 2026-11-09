@@ -10,6 +10,8 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 ------------
 
+Status: Patiently waiting for the defamatory lawsuit which will never come because my physical mailbox is already been illegally intercepted. Also wow forever is great fun!
+
 Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪/10. [https://open.spotify.com/track/0wJUWymFpp1OivQGIp3PlY?si=5988e49244c34e29](https://open.spotify.com/track/38jhyibFcwhmcNrdDXo79K?si=0b4902f47e68452b)
 
 Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
