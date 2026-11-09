@@ -10,7 +10,7 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 ------------
 
-Status: Patiently waiting for the defamatory lawsuit which will never come because my physical mailbox is already been illegally intercepted. Also wow forever is great fun! Enjoy wasting time re-writing git history of actual hard-work at my former employeer before I got pulled in every direction.
+Status: Patiently waiting for the defamatory lawsuit which will never come because my physical mailbox is already been illegally intercepted. Also wow forever is great fun! Enjoy wasting time re-writing git history of actual hard-work at my former employeer before I got pulled in every direction (how I know: https://github.com/xanather/lib.public.game-currency, I'm not hacking ya'll unlike the office that funds this chicanery, despite how hard they tried to set me up).
 
 Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪/10. [https://open.spotify.com/track/0wJUWymFpp1OivQGIp3PlY?si=5988e49244c34e29](https://open.spotify.com/track/38jhyibFcwhmcNrdDXo79K?si=0b4902f47e68452b)
 
