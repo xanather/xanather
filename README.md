@@ -10,13 +10,13 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 ------------
 
-Status: Vibe-lawyering
+Daily alive heartbeat commit status: Meditating
 
 Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪/10. [https://open.spotify.com/track/0wJUWymFpp1OivQGIp3PlY?si=5988e49244c34e29](https://open.spotify.com/track/38jhyibFcwhmcNrdDXo79K?si=0b4902f47e68452b)
 
 Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
 
-Today's damage seeking compensation index: $20,050,000 (no I will not be accepting hush money or signing an NDA).
+Today's damage seeking compensation index: $20,050,000.
 
 50% of above will go to other victims that reach out if/when they feel safe.
 
@@ -27,17 +27,16 @@ Penalty market prices:
 - Every new video on that damn channel is another $200k - this mechanism seem to hold for 2 days now ya'll are spamming the channel again?
 - Identity fraud at any bank is another $1m.
 - Under the table hush money attempt in any form is $100k.
+- Suspected discord interception is $10k (bruh if I counted all the cybercrime id be over $100m).
+- Freezing the number from my limited visibility on a round number that makes it look sus is another $333k.
 
-Also blocking my email address from the criminal office in question, while executives of the same place try reach out to me on LinkedIn is abhorrent.
+I know this isn't what will arbitrarily get passed through courts 😆. When under duress you got to laugh it off! But rest assured I am seeking compensation for the meat grinder I put through, loss of opportunities and the blame for others stupidity.
 
 For anyone else trapped I'm trying as fast as I can.
 
-`VIRON's 'DocuSign Policy - IP Protection - DocuSigned.pdf' (17 signatures) SHA256SUM 349c3962b280735be3604424e63c149d0f1d790d157ed1605d3fbefcdf31f872`
-`Head of Investments 'NDA - Physical Scan.pdf' (3 signatures) SHA256SUM 70932595da8a76c1da58bf174a0bc6a9825bccf2cc9b9a279c84ba73165d5b54`
-
 ------------
 
-Every party here involved is a moron that I think got busy looting while none was looking, but crime is never the answer despite any disagreements. Blake C Hall go fuck yourself specifically.
+Every party here involved is a moron that I think got busy looting while none was looking, but crime is never the answer despite any disagreements.
 
 I gave so many warnings to leave me alone over last 9 months since walking away. Hopefully now this leaves me alone to build since money is the only language some understand and prevents more victims!
 
