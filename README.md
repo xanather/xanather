@@ -12,9 +12,11 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 Daily alive heartbeat commit status: Meditating
 
-Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪/10. [https://open.spotify.com/track/0wJUWymFpp1OivQGIp3PlY?si=5988e49244c34e29](https://open.spotify.com/track/38jhyibFcwhmcNrdDXo79K?si=0b4902f47e68452b)
+Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪/10.
 
 Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
+
+New long nice song to listen to while AFCA complaints lapse: https://open.spotify.com/track/2zvGnJ2l7d7Lc6OQsZ8kgA?si=0db4830b2c5d4450
 
 Today's damage seeking compensation index: $20,050,000.
 
@@ -38,7 +40,7 @@ For anyone else trapped I'm trying as fast as I can.
 
 ------------
 
-Every party here involved is a moron that I think got busy looting while none was looking (at my company and also previous employer), but crime is never the answer despite any disagreements.
+Every party here involved is a moron that I think got busy looting while none was looking at every angle, but crime is never the answer despite any disagreements. Take responsibility.
 
 I gave so many warnings to leave me alone over last 9 months since walking away. Hopefully now this leaves me alone to build since money is the only language some understand and prevents more victims!
 
