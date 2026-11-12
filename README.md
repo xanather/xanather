@@ -32,7 +32,7 @@ Penalty market prices:
 - Suspected discord interception is $10k (bruh if I counted all the cybercrime id be over $100m).
 - Freezing the number from my limited visibility on a round number that makes it look sus is another $333k.
 
-I know this isn't what will arbitrarily get passed through courts 😆. When under duress you got to laugh it off! But rest assured I am seeking compensation for the meat grinder I put through, loss of opportunities and the blame for others stupidity.
+I know this isn't what will arbitrarily get passed through courts 😆. When under duress you got to laugh it off! But rest assured I am seeking compensation for the meat grinder I put through, loss of opportunities, crime, months-long dishonesty to try infiltrate my systems, and the blame for others stupidity.
 
 For anyone else trapped I'm trying as fast as I can.
 
