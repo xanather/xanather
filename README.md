@@ -34,9 +34,11 @@ I know this isn't what will arbitrarily get passed through courts 😆. When und
 
 For anyone else trapped I'm trying as fast as I can.
 
+`VIRON's 'DocuSign Policy - IP Protection - DocuSigned.pdf' (17 signatures) SHA256SUM 349c3962b280735be3604424e63c149d0f1d790d157ed1605d3fbefcdf31f872` Quit fucking with the banking system plz! Surely this document makes it pointless to!
+
 ------------
 
-Every party here involved is a moron that I think got busy looting while none was looking, but crime is never the answer despite any disagreements.
+Every party here involved is a moron that I think got busy looting while none was looking (at my company and also previous employer), but crime is never the answer despite any disagreements.
 
 I gave so many warnings to leave me alone over last 9 months since walking away. Hopefully now this leaves me alone to build since money is the only language some understand and prevents more victims!
 
