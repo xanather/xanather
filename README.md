@@ -18,7 +18,7 @@ Number of Australian banks locked up over this stupidity: 4 🔨, that's four AF
 
 New long nice song to listen to while AFCA complaints lapse: https://open.spotify.com/track/2zvGnJ2l7d7Lc6OQsZ8kgA?si=0db4830b2c5d4450
 
-Today's damage seeking compensation index: $20,050,000.
+Today's damage seeking compensation index: $20,150,000.
 
 50% of above will go to other victims that reach out if/when they feel safe.
 
@@ -30,9 +30,8 @@ Penalty market prices:
 - Identity fraud at any bank is another $1m.
 - Under the table hush money attempt in any form is $100k.
 - Suspected discord interception is $10k (bruh if I counted all the cybercrime id be over $100m).
-- Freezing the number from my limited visibility on a round number that makes it look sus is another $333k.
 
-I know this isn't what will arbitrarily get passed through courts 😆. When under duress you got to laugh it off! But rest assured I am seeking compensation for the meat grinder I put through, loss of opportunities, crime, months-long dishonesty to try infiltrate my systems, and the blame for others stupidity.
+I know this isn't what will arbitrarily get passed through courts 😆. When under duress you got to laugh it off! But rest assured I am seeking compensation for the meat grinder I got put through, loss of opportunities, crime, months-long dishonesty to try infiltrate my systems, and receiving blame for others stupidity (defamation).
 
 For anyone else trapped I'm trying as fast as I can.
 
