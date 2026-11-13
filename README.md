@@ -18,7 +18,7 @@ Number of Australian banks locked up over this stupidity: 4 🔨, that's four AF
 
 New long nice song to listen to while AFCA complaints lapse: https://open.spotify.com/track/2zvGnJ2l7d7Lc6OQsZ8kgA?si=0db4830b2c5d4450
 
-Today's damage seeking compensation index: $20,150,000.
+Today's damage seeking compensation index: $20,350,000.
 
 50% of above will go to other victims that reach out if/when they feel safe.
 
