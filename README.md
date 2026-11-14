@@ -27,7 +27,7 @@ Penalty market prices:
 - Every new video on that damn channel is another $200k - this mechanism seem to hold for 2 days now ya'll are spamming the channel again?
 - Identity fraud at any bank is another $1m.
 - Under the table hush money attempt in any form is $100k.
-- Suspected discord interception is $10k (bruh if I counted all the cybercrime id be over $100m).
+- Suspected discord interception is $150k.
 
 I know this isn't what will arbitrarily get passed through courts 😆. When under duress you got to laugh it off! But rest assured I am seeking compensation for the meat grinder I got put through, loss of opportunities, crime, months-long dishonesty to try infiltrate my systems, and receiving blame for others stupidity (defamation).
 
