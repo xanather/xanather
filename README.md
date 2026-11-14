@@ -10,15 +10,13 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 ------------
 
-Daily alive heartbeat commit status: Meditating
+Daily alive heartbeat commit status: still breathing
 
-Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪/10.
+Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪/10.
 
 Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
 
-New long nice song to listen to while AFCA complaints lapse: https://open.spotify.com/track/2zvGnJ2l7d7Lc6OQsZ8kgA?si=0db4830b2c5d4450
-
-Today's damage seeking compensation index: $20,360,000.
+Today's damage seeking compensation index: $20,570,000.
 
 50% of above will go to other victims that reach out if/when they feel safe.
 
