@@ -10,9 +10,7 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 ------------
 
-Circuit breaker triggered
-==============
-***I'm doubling the prices of all damage seeking penalties if the circuit starts again, thanks***
+Failed circuit breakers: 1 :(
 
 Daily alive heartbeat commit status: https://open.spotify.com/track/6NjI5sEd8IG0tPl16eDwPW?si=ec713422715540f5
 
@@ -25,16 +23,17 @@ Today's damage seeking compensation index:
 $20,770,000.
 ==============
 
-50% of above will go to other victims that reach out if/when they feel safe.
+60% of above will go to other victims that reach out if/when they feel safe.
 
 _Now would be the time for a lawyer to reach out to me to freeze the number above, probably not the one that didn't do her fiduciary duty after my whistle-blowing in March. Use jordan_root2@proton.me to skip the DNS poisoning impersonation which is likely active there._
 
 Penalty market prices:
-- ~~Every detected mouth breather stalker drone is an extra $50k, at-least bring them back to the train line cowards.~~
-- ~~Every new video on that damn channel is another $200k~~
-- ~~Identity fraud at any bank is another $1m.~~
-- ~~Under the table hush money attempt in any form is $100k.~~
-- ~~Discord interception is $150k.~~
+- Every detected mouth breather stalker drone is an extra $100k, at-least bring them back to the train line cowards.
+- Every detected mouth breather stalker drone with a stingray is an extra $500k, and risks a citizen arrest.
+- Every new video on that damn channel is another $400k.
+- Identity fraud at any bank is another $2m.
+- Under the table hush money attempt in any form is $200k.
+- Discord interception is $300k.
 
 I know this isn't what will arbitrarily get passed through courts 😆. When under duress you got to laugh it off! But rest assured I am seeking compensation for the meat grinder I got put through, loss of opportunities, crime, months-long dishonesty to try infiltrate my systems, and receiving blame for others stupidity (defamation).
 
