@@ -43,7 +43,10 @@ For anyone else trapped I'm trying as fast as I can.
 
 ------------
 
-Every party here involved is a moron that I think got busy looting while none was looking at every angle, but crime is never the answer despite any disagreements. Take responsibility.
+Every party here involved is a moron that I think got busy looting while none was looking at every angle, but crime is never the answer despite any disagreements.
+
+Take responsibility.
+==============
 
 I gave so many warnings to leave me alone over last 9 months since walking away. Hopefully now this leaves me alone to build since money is the only language some understand and prevents more victims!
 
