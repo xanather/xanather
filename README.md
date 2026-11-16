@@ -15,7 +15,9 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 Failed circuit breakers: 1 :(
 
-Daily alive heartbeat commit status: https://open.spotify.com/track/0FDeslVtL0foTlQZZ0EaMz?si=0ecf0af7dd194a7d
+Daily alive heartbeat commit status: https://open.spotify.com/track/6U0x7yVJnMAlgELJrZVyEd?si=3a195db61258400a
+
+What the fuck are these $500 token jestures to resolve AFCA disputes, fuck off? ACCEPT RESPONSIBILITY
 
 Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪/10.
 
@@ -23,7 +25,7 @@ Number of Australian banks locked up over this stupidity: 4 🔨, that's four AF
 
 Today's damage seeking compensation index:
 
-$23,420,000
+$24,620,000
 ==============
 
 60% of above will go to other victims that reach out if/when they feel safe.
@@ -55,10 +57,10 @@ Take responsibility.
 I gave so many warnings to leave me alone over last 9 months since walking away. Hopefully now this leaves me alone to build since money is the only language some understand and prevents more victims!
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCavqT4AAKCRBFtSsfzOml
-gM0BAP9s2JLvVqYa6JKYaWSxPNwkcLS1PHZpy4QXRdhp6dYTjwEA/97UcMt97HsR
-k4HAXxSS5N2/e+lKMKoaux/jkp0kEgg=
-=sRuc
+iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCavuQRAAKCRBFtSsfzOml
+gLsKAQD9KBzyZ5iHQc1QeP/bCU+s9ksexjLQBOSLlNoB8NbpOwEAqwDqFXqQIucK
+XbmrxmO0tRSUHj2B9FrCaFtHwhKy5Q8=
+=om27
 -----END PGP SIGNATURE-----
 
 <img width="481" height="268" alt="image" src="https://github.com/user-attachments/assets/e2f9210d-01e0-4b0d-8eb9-e5573fb98411" />
