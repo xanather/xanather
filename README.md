@@ -60,3 +60,5 @@ gM0BAP9s2JLvVqYa6JKYaWSxPNwkcLS1PHZpy4QXRdhp6dYTjwEA/97UcMt97HsR
 k4HAXxSS5N2/e+lKMKoaux/jkp0kEgg=
 =sRuc
 -----END PGP SIGNATURE-----
+
+<img width="481" height="268" alt="image" src="https://github.com/user-attachments/assets/e2f9210d-01e0-4b0d-8eb9-e5573fb98411" />
