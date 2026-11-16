@@ -15,15 +15,15 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 Failed circuit breakers: 1 :(
 
-Daily alive heartbeat commit status: https://open.spotify.com/track/6NjI5sEd8IG0tPl16eDwPW?si=ec713422715540f5
+Daily alive heartbeat commit status: https://open.spotify.com/track/0FDeslVtL0foTlQZZ0EaMz?si=0ecf0af7dd194a7d
 
-Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪/10.
+Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪/10.
 
 Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
 
 Today's damage seeking compensation index:
 
-$22,970,000
+$23,020,000
 ==============
 
 60% of above will go to other victims that reach out if/when they feel safe.
@@ -37,8 +37,9 @@ Penalty market prices:
 - - Identity fraud at any bank is another $2m.
 - - Under the table hush money attempt in any form is $200k.
 - - Discord interception is $300k.
+- - Phone call interception is $500k. The stingray went for the heart but there was none there, it died 10 months ago!
 
-I know this isn't what will arbitrarily get passed through courts 😆. When under duress you got to laugh it off! But rest assured I am seeking compensation for the meat grinder I got put through, loss of opportunities, crime, months-long dishonesty to try infiltrate my systems, and receiving blame for others stupidity (defamation).
+I know this isn't what will arbitrarily get passed through courts. When under duress you got to laugh it off! But rest assured I am seeking compensation for the meat grinder I got put through, loss of opportunities, crime, months-long dishonesty to try infiltrate my systems, and receiving blame for others stupidity (defamation).
 
 For anyone else trapped I'm trying as fast as I can.
 
@@ -54,10 +55,10 @@ Take responsibility.
 I gave so many warnings to leave me alone over last 9 months since walking away. Hopefully now this leaves me alone to build since money is the only language some understand and prevents more victims!
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCavnkOgAKCRBFtSsfzOml
-gJtLAQDyy34U+7Hv5Yz4vO50XCEnWzl2Y+VVGmvoIrJY6WCzlgEAnV+UHkafI48M
-qv+zKZHGKyFxnMn87FaG3xn5Bz6Q6Ao=
-=96ra
+iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCavp+yQAKCRBFtSsfzOml
+gJwWAP9ldNU2OgyWSbuN/R3E0MWa69urR9SVe2TlLqJ5CuA11AD/aWD43v3o46aP
+BGQFoXohC24WxrVh+lDsVSe0C3d4nQ0=
+=83D3
 -----END PGP SIGNATURE-----
 
 <img width="481" height="268" alt="image" src="https://github.com/user-attachments/assets/e2f9210d-01e0-4b0d-8eb9-e5573fb98411" />
