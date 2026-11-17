@@ -57,10 +57,10 @@ Take responsibility.
 I gave so many warnings to leave me alone over last 9 months since walking away. Hopefully now this leaves me alone to build since money is the only language some understand and prevents more victims!
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCavuQRAAKCRBFtSsfzOml
-gLsKAQD9KBzyZ5iHQc1QeP/bCU+s9ksexjLQBOSLlNoB8NbpOwEAqwDqFXqQIucK
-XbmrxmO0tRSUHj2B9FrCaFtHwhKy5Q8=
-=om27
+iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCavwfZgAKCRBFtSsfzOml
+gFv8APwOYtP0t3yKlhWDP4ekkvZBb5cBTZJNMpUILO4pAieCawD/a0H4rzBjGLIY
+HyYy/D1M3/7q+WkpWh9ZMPp4IYm56wQ=
+=46Nl
 -----END PGP SIGNATURE-----
 
 <img width="481" height="268" alt="image" src="https://github.com/user-attachments/assets/e2f9210d-01e0-4b0d-8eb9-e5573fb98411" />
