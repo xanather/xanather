@@ -11,15 +11,19 @@ Building a company 🏢! Tough work 🦈!
 
 Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities, and respect the custodians, values and laws of the land!
 
-- ------------
+------------
+
+Circuit breaker triggered
+==============
+***I'm doubling the prices of all damage seeking penalties if the circuit starts again and incentive for other whistleblowers to 70%, thanks. Can we let this sit still now so I can submit my last AFCA complaint with the final number?***
 
 Failed circuit breakers: 1 :(
 
-Daily alive heartbeat commit status: https://open.spotify.com/track/5svAQVmIbmVKCyNrOuhjqL?si=ff30d6b3eab64ac5
+Daily alive heartbeat commit status: https://open.spotify.com/track/6buHoQU9OTdbJrAuniVwGL?si=76f5c8a37f204dcf
 
-Today's stupidity index out of 10 (updated live): 🫪🫪🫪🫪🫪🫪🫪🫪🫪🫪/10.
+Today's stupidity index out of 10 (updated live): ∞/10.
 
-Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
+Number of Australian banks locked up over this stupidity: 4 🔨
 
 Today's damage seeking compensation index:
 
@@ -31,13 +35,13 @@ $26,520,000
 _Now would be the time for a lawyer to reach out to me to freeze the number above, probably not the one that didn't do her fiduciary duty after my whistle-blowing in March. Use jordan_root2@proton.me to skip the DNS poisoning impersonation which is likely active there._
 
 Penalty market prices:
-- - Every detected mouth breather stalker drone is an extra $100k, at-least bring them back to the train line cowards.
-- - Every detected mouth breather stalker drone with a stingray is an extra $500k, and risks a citizen arrest.
-- - Every new video on that damn channel is another $400k.
-- - Identity fraud at any bank is another $2m.
-- - Under the table hush money attempt in any form is $200k.
-- - Discord interception is $300k.
-- - Phone call interception is $500k. The stingray went for the heart but there was none there, it died 10 months ago!
+- ~Every detected mouth breather stalker drone is an extra $100k, at-least bring them back to the train line cowards.~
+- ~Every detected mouth breather stalker drone with a stingray is an extra $500k, and risks a citizen arrest.~
+- ~Every new video on that damn channel is another $400k.~
+- ~Identity fraud at any bank is another $2m.~
+- ~Under the table hush money attempt in any form is $200k.~
+- ~Discord interception is $300k.~
+- ~Phone call interception is $500k. The stingray went for the heart but there was none there, it died 10 months ago!~
 
 I know this isn't what will arbitrarily get passed through courts. When under duress you got to laugh it off! But rest assured I am seeking compensation for the meat grinder I got put through, loss of opportunities, crime, months-long dishonesty to try infiltrate my systems, and receiving blame for others stupidity (defamation).
 
