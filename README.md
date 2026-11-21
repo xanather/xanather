@@ -25,7 +25,7 @@ Number of Australian banks locked up over this stupidity: 4 🔨, that's four AF
 
 Today's damage seeking compensation index:
 
-$28,120,000
+$28,520,000
 ==============
 
 70% of above will go to other victims that reach out if/when they feel safe.
@@ -57,8 +57,8 @@ Take responsibility.
 I gave so many warnings to leave me alone over last 9 months since walking away. Hopefully now this leaves me alone to build since money is the only language some understand and prevents more victims!
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawEB1gAKCRBFtSsfzOml
-gOnGAQDbj9yWS1VbclW0o4f9qije+I0NQ+ilp7Hp74jrT0izQgD+IRbkoW6JWO0w
-0g6QY1gR6CW+hvmY8pguQXo6JyupeQs=
-=weTK
+iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawFsowAKCRBFtSsfzOml
+gNVhAP97JG5IQruz9r3BAthrFFkZQ6mVEhP6iddX+P0Qw9HFJQEAwmf8od+q9k7m
+jcuhz9nbO6J9qjIE2XW15ivXRJ+3UQQ=
+=x63i
 -----END PGP SIGNATURE-----
