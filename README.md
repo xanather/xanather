@@ -17,15 +17,13 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 **Failed circuit breakers: 2 :(**
 
-Daily alive heartbeat commit status: https://open.spotify.com/track/2qBK1ybQrXnbYpaFWE3ylX?si=fba943e1d8fd4f35
+Daily alive heartbeat commit status: https://open.spotify.com/track/1UMdbkqX19OiwfExH7gzYA?si=397a1dac10914430 - ultra extended edition super slowed and sped up + added reverb 🤡, wake tf up
 
 Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
 
-(ANZ is royally fucked lol)
-
 Today's damage seeking compensation index:
 
-$31,520,000
+$33,120,000
 ==============
 
 70% of above will go to other victims that reach out if/when they feel safe.
@@ -46,14 +44,16 @@ This _will_ be the lawsuit which I will lead, that tears down the scraps of this
 
 I am seeking compensation for the meat grinder I got put through, loss of opportunities, criminal injury to myself and friends, months-long dishonesty to try infiltrate my systems, and receiving blame for others stupidity.
 
+I know this isn't what will arbitrarily get passed through courts. When under duress you got to laugh it off!
+
 - ------------
 
 Take responsibility.
 ==============
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawJafQAKCRBFtSsfzOml
-gCx3AP9tATBzz90j3vrk5DxzcjW1xfjYhAiOdHMVcCgwpahdDgEA6p3oStqow1MB
-vWw6bEW8tZ36B7tmpBTZNSvz4oZrrww=
-=MIH2
+iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawOciQAKCRBFtSsfzOml
+gGJ7AQCPWhnLFKnxzwOuGQAFRx5JwbAyGwtdPRPG4Sgzg5Qz9QD8CYsryFf7QHiT
+4hjreMZdp5k2dK5WTpeHBLJ7BIpntAY=
+=90qS
 -----END PGP SIGNATURE-----
