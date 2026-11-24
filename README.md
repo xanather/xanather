@@ -19,7 +19,7 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 **Failed circuit breakers: 2 :(**
 
-Daily alive heartbeat commit status: https://open.spotify.com/track/5iTda1icTNQH81m8nASF8t?si=3097eba0b49f4a47
+Daily alive heartbeat commit status: https://open.spotify.com/track/4NwpP2y4ijBR77Voiq9pS1?si=ff0f69353bcf428a
 
 Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
 
@@ -33,29 +33,29 @@ $34,520,000
 _Now would be the time for a lawyer to reach out to me to freeze the number above, probably not the one that didn't do her fiduciary duty after my whistle-blowing in March. Use jordan_root2@proton.me to skip the DNS poisoning impersonation which is likely active there._
 
 Penalty market prices:
-- - - Every detected mouth breather stalker drone is an extra $200k, at-least bring them back to the train line cowards.
-- - - Every detected mouth breather stalker drone with a stingray is an extra $1m, and risks a citizen arrest.
-- - - Every new video on that damn channel is another $800k. Surely you just create another channel that I can't see, even if you think the number above is a bluff, wtf going on?
-- - - Identity fraud at any bank is another $4m.
-- - - Under the table hush money attempt in any form is $400k.
-- - - Discord interception is $600k.
-- - - Phone call interception is $1m. The stingray went for the heart but there was none there, it died 10 months ago!
-- - - Intimidating my friends, just because you can't control me is $1m.
+- - Every detected mouth breather stalker drone is an extra $200k, at-least bring them back to the train line cowards.
+- - Every detected mouth breather stalker drone with a stingray is an extra $1m, and risks a citizen arrest.
+- - Every new video on that damn channel is another $800k. Surely you just create another channel that I can't see, even if you think the number above is a bluff, wtf going on?
+- - Identity fraud at any bank is another $4m.
+- - Under the table hush money attempt in any form is $400k.
+- - Discord interception is $600k.
+- - Phone call interception is $1m. The stingray went for the heart but there was none there, it died 10 months ago!
+- - Intimidating my friends, just because you can't control me is $1m.
 
 This _will_ be the lawsuit which I will lead, that tears down the scraps of this syndicate when the time is right. For someone trying to build a product that requires strict regulatory oversight that is clearly has become incompatible with previous potential investors since before April I'm not sure what outcome was expected here.
 
 I am seeking compensation for the meat grinder I got put through, loss of opportunities, criminal injury to myself and friends, months-long dishonesty to try infiltrate my systems, and receiving blame for others stupidity.
 
-I know this isn't what will arbitrarily get passed through courts. When under duress you got to laugh it off!
+I know this isn't what will arbitrarily get passed through courts. When under duress you got to laugh it off! Every party here involved is a moron that I think got busy looting while none was looking at every angle, but crime is never the answer despite any disagreements.
 
-- ------------
+I gave so many warnings to leave me alone over last 9 months since walking away. Hopefully now this leaves me alone to build since money is the only language some understand and prevents more victims!
 
 Take responsibility.
 ==============
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawRXjAAKCRBFtSsfzOml
-gHZEAPwNcsAyB1CG+WdE7M+SwN/58ZeQLYDDm3NDKkMdEwyWOwD/eung2XauR8CN
-h4zik73R3evLdGzVV1ptaCLmVvnRJw4=
-=N91A
+iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawUkzwAKCRBFtSsfzOml
+gBJQAQCeP8qJxFgK+IzK7zjzVCgx//mgFnM9wbjKKyv+STLpUgEA4x028h5Xb5lI
+mDAk8Nr8ZJDb2ina5h99hBU8jkmcEgk=
+=nFlj
 -----END PGP SIGNATURE-----
