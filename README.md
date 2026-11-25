@@ -17,11 +17,16 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 **EXIT ASAP. CONTACT ME.**
 
-**Failed circuit breakers: 2 :(**
+Circuit breaker triggered
+==============
 
-Daily alive heartbeat commit status: https://open.spotify.com/track/4NwpP2y4ijBR77Voiq9pS1?si=ff0f69353bcf428a
+Days off: 1 of 7. this was the stupidest shitshow of my life and i am tired
+
+Daily alive heartbeat commit status: https://open.spotify.com/track/3oHlWW97RAUDCSQxFhuEyF?si=c7477cb719764bef
 
 Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
+
+AFCA complaints headed to Jurisdiction: 1
 
 Today's damage seeking compensation index:
 
@@ -29,18 +34,6 @@ $34,520,000
 ==============
 
 70% of above will go to other victims that reach out if/when they feel safe.
-
-_Now would be the time for a lawyer to reach out to me to freeze the number above, probably not the one that didn't do her fiduciary duty after my whistle-blowing in March. Use jordan_root2@proton.me to skip the DNS poisoning impersonation which is likely active there._
-
-Penalty market prices:
-- - Every detected mouth breather stalker drone is an extra $200k, at-least bring them back to the train line cowards.
-- - Every detected mouth breather stalker drone with a stingray is an extra $1m, and risks a citizen arrest.
-- - Every new video on that damn channel is another $800k. Surely you just create another channel that I can't see, even if you think the number above is a bluff, wtf going on?
-- - Identity fraud at any bank is another $4m.
-- - Under the table hush money attempt in any form is $400k.
-- - Discord interception is $600k.
-- - Phone call interception is $1m. The stingray went for the heart but there was none there, it died 10 months ago!
-- - Intimidating my friends, just because you can't control me is $1m.
 
 This _will_ be the lawsuit which I will lead, that tears down the scraps of this syndicate when the time is right. For someone trying to build a product that requires strict regulatory oversight that is clearly has become incompatible with previous potential investors since before April I'm not sure what outcome was expected here.
 
@@ -54,8 +47,8 @@ Take responsibility.
 ==============
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawUkzwAKCRBFtSsfzOml
-gBJQAQCeP8qJxFgK+IzK7zjzVCgx//mgFnM9wbjKKyv+STLpUgEA4x028h5Xb5lI
-mDAk8Nr8ZJDb2ina5h99hBU8jkmcEgk=
-=nFlj
+iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawZIWgAKCRBFtSsfzOml
+gI+DAP0d1zE2AVG4LQ/MhKktcrkfSVMC/cWAGqJ0czyiwT5weAD/YLMh9N08YdA6
+ALsNzCctLBepeViggtSV5gK16R1rPg4=
+=wNlb
 -----END PGP SIGNATURE-----
