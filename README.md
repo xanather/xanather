@@ -13,42 +13,22 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 - ------------
 
-![img_1.png](img_1.png)
+Circuit days off: 2. this was the stupidest shitshow of my life and i am tired
 
-**EXIT ASAP. CONTACT ME.**
+Daily alive heartbeat commit status: https://open.spotify.com/track/7nUBMeVczuUTVl34GnDjcv?si=7a968fdc25d64156
 
-Circuit breaker triggered
-==============
+AFCA complaints headed to jurisdiction: 1
 
-Days off: 1 of 7. this was the stupidest shitshow of my life and i am tired
-
-Daily alive heartbeat commit status: https://open.spotify.com/track/3oHlWW97RAUDCSQxFhuEyF?si=c7477cb719764bef
-
-Number of Australian banks locked up over this stupidity: 4 🔨, that's four AFCA countdown timers under a company, wow!
-
-AFCA complaints headed to Jurisdiction: 1
-
-Today's damage seeking compensation index:
+Damage seeking compensation index: 
 
 $34,520,000
-==============
+=============
 
-70% of above will go to other victims that reach out if/when they feel safe.
-
-This _will_ be the lawsuit which I will lead, that tears down the scraps of this syndicate when the time is right. For someone trying to build a product that requires strict regulatory oversight that is clearly has become incompatible with previous potential investors since before April I'm not sure what outcome was expected here.
-
-I am seeking compensation for the meat grinder I got put through, loss of opportunities, criminal injury to myself and friends, months-long dishonesty to try infiltrate my systems, and receiving blame for others stupidity.
-
-I know this isn't what will arbitrarily get passed through courts. When under duress you got to laugh it off! Every party here involved is a moron that I think got busy looting while none was looking at every angle, but crime is never the answer despite any disagreements.
-
-I gave so many warnings to leave me alone over last 9 months since walking away. Hopefully now this leaves me alone to build since money is the only language some understand and prevents more victims!
-
-Take responsibility.
-==============
+I think my job as a citizen is done here, trust your gut
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawZIWgAKCRBFtSsfzOml
-gI+DAP0d1zE2AVG4LQ/MhKktcrkfSVMC/cWAGqJ0czyiwT5weAD/YLMh9N08YdA6
-ALsNzCctLBepeViggtSV5gK16R1rPg4=
-=wNlb
+iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawe2OwAKCRBFtSsfzOml
+gJzeAP0f8P8/GUiXbXRhLAQRjIaP3h8VuTD+CfBMGnykjiTVvgEAwWVDsOJcySRQ
+nUxqvaRnOYcnuUKl+oxj0KKJztcP8wI=
+=4mXh
 -----END PGP SIGNATURE-----
