@@ -15,9 +15,11 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 Circuit days off: 2. this was the stupidest shitshow of my life and i am tired
 
-Daily alive heartbeat commit status: https://open.spotify.com/track/7nUBMeVczuUTVl34GnDjcv?si=7a968fdc25d64156
+Daily alive heartbeat commit status: https://open.spotify.com/track/4lU9CllWb3md7vD6wdcRyG?si=1012c690588c4384
 
-AFCA complaints headed to jurisdiction: 1
+AFCA complaints headed to jurisdiction: 2
+
+*still trying to intercept my VPN when it's not set to Switzerland? madness...*
 
 Damage seeking compensation index: 
 
@@ -25,10 +27,11 @@ $34,520,000
 =============
 
 I think my job as a citizen is done here, trust your gut
+
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawe2OwAKCRBFtSsfzOml
-gJzeAP0f8P8/GUiXbXRhLAQRjIaP3h8VuTD+CfBMGnykjiTVvgEAwWVDsOJcySRQ
-nUxqvaRnOYcnuUKl+oxj0KKJztcP8wI=
-=4mXh
+iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawj8twAKCRBFtSsfzOml
+gIcBAP0YF9GkyJfVe7AhaSDa3pEYy6E9VH7pBFaxSTL1GIjPyQEAhoEL1iVcjxej
+XOj7gR/tY3QFpOtdYT0OOz3NDp0dTww=
+=N2nT
 -----END PGP SIGNATURE-----
