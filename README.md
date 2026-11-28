@@ -13,9 +13,9 @@ Grateful for being born in Western Australia 🇦🇺🦘, rich in opportunities
 
 - ------------
 
-Circuit days off: 3. this was the stupidest shitshow of my life and i am tired
+Circuit days off: 4. this was the stupidest shitshow of my life and i am tired
 
-Daily alive heartbeat commit status: https://open.spotify.com/track/4lU9CllWb3md7vD6wdcRyG?si=1012c690588c4384
+Daily alive heartbeat commit status: https://open.spotify.com/track/5bDdyIHxm12Xh7k56H5emt?si=faeb829fa19342e1
 
 AFCA complaints headed to jurisdiction: 3
 
@@ -29,8 +29,8 @@ $34,520,000
 I think my job as a citizen is done here, trust your gut
 -----BEGIN PGP SIGNATURE-----
 
-iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawj9VwAKCRBFtSsfzOml
-gPb8AQCaH2UYkopf5icW4XwM6vawZn1ouHIsZ8rdxZ5OuklL7gEA75EcM5U8D6d4
-mnYgimKAJScAsrvd6CgAvphR8W7Yvwo=
-=8oyc
+iHUEARYKAB0WIQTuiVwU6jGSY23MnANFtSsfzOmlgAUCawpWxgAKCRBFtSsfzOml
+gIYRAQDP3SamecDzJD0/aBLiS8XiIBzA0/zg/500QpVMTMUqCQEAgpzFF6ffcC6J
+uIZ3ZAAVyo/Cyue5fuOdAxRPOpMPBwM=
+=hF/1
 -----END PGP SIGNATURE-----
